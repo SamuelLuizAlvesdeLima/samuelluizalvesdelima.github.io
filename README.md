@@ -18,5 +18,8 @@ Tenho o sonho de ser bem sucedido e ter uma vida tranquila.
 |Top3|hambúrguer|Arroz e feijão|
 
 *******
-## Principais atividades físicas
-* **Basquete:** Basicamente esse esporte é o qie eu mais estou apaixonado no momento, sinto que melhoro cada dia mais.
+## Principais atividades físicas que eu pratico.
+
+* **Basquete:** Basicamente esse esporte é o que eu mais estou apaixonado no momento, todo dia eu pratico pelomenos um pouco dele, estou melhorando mas sou ruim ainda kkkk.
+*  **Futebol:** Eu gosto de praticar ele mas so muito ruim, jogo mais em momentos sociais mas não gosto muito, pois n consigo evoluir nele, portanto eu me desanimei de tentar evoluir.
+*  **Voleibol:** Esse era meu exporte favorito antes do basquete, eu sou relativamente jogavel nele, sinto se eu treinar e focar eu consigo evoluir bastante, ultimamente estou jogando so em momentos sociais mas faz tempo desda ultimamente vez que eu o pratiquei.
