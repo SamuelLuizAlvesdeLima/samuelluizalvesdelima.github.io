@@ -4,8 +4,7 @@ Olha eu aqui(:
 
 Olá eu sou o Samuel Luiz, tenho 15 anos e estou cursando o ensino medio com 
 o tecnico de informatica integrado do [IFPR campus pinhais](https://ifpr.edu.br/).
-Gosto muito de passar o meu tempo livre vendo series e pricipal dormir.
-Tenho o sonho de ser bem sucedido e ter uma vida tranquila.
+Gosto muito de passar o meu tempo livre vendo series e principalmente dormir. Tenho o sonho de ser bem sucedido e ter uma vida tranquila.
 
 *******
 ## Comidas
@@ -21,5 +20,5 @@ Tenho o sonho de ser bem sucedido e ter uma vida tranquila.
 ## Principais atividades físicas que eu pratico.
 
 * **Basquete:** Basicamente esse esporte é o que eu mais estou apaixonado no momento, todo dia eu pratico pelomenos um pouco dele, estou melhorando mas sou ruim ainda kkkk.
-*  **Futebol:** Eu gosto de praticar ele mas so muito ruim, jogo mais em momentos sociais mas não gosto muito, pois n consigo evoluir nele, portanto eu me desanimei de tentar evoluir.
-*  **Voleibol:** Esse era meu esporte favorito antes do basquete, eu sou relativamente jogavel nele, sinto se eu treinar e focar eu consigo evoluir bastante, ultimamente estou jogando so em momentos sociais mas faz tempo desda ultimamente vez que eu o pratiquei.
+*  **Futebol:** Eu o prático e gosto bastante dele mas sou muito ruim, jogo mais em momentos sociais mas não gosto muito, pois não consigo evoluir nele, portanto eu me desanimei de tentar evoluir.
+*  **Voleibol:** Esse era meu esporte favorito antes do basquete, eu sou relativamente jogavel nele, sinto se eu treinar e focar eu consigo evoluir bastante, ultimamente estou jogando so em momentos sociais mas faz tempo desda ultima vez que eu o pratiquei.
